@@ -1,4 +1,4 @@
-
+Adobe Photoshop for macOS rare Action: shortcut customization & cloud sync is the best Adobe Photoshop for macOS action, featuring shortcut customization and cloud sync. Safe,
 
 
 
